@@ -1,3 +1,3 @@
 # Anlagen-Wettbewerb
 
-Hier findet ihr alle Dateien unserer unserer Jury-Bewertung in Fulda
+Hier findet ihr alle Dateien aus unseren Jury-Bewertungen
